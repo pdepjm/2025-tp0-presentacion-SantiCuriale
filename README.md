@@ -8,5 +8,5 @@
 
 ### Una pic
 
-![pic](https://github.com/user-attachments/assets/603c0b44-4530-4463-9668-4fa0693cbe11)
+![foto.mia](https://github.com/user-attachments/assets/72cc64e6-c4f5-4dde-8503-f0d848ab323d)
 
